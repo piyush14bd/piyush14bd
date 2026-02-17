@@ -36,7 +36,8 @@
 
 - 📫 How to reach me **deshmukhbpiyush1999@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/139Y-S1DZCRB56pI25xzvqWtlHr5wEHcj/view?usp=sharing](https://drive.google.com/file/d/139Y-S1DZCRB56pI25xzvqWtlHr5wEHcj/view?usp=sharing)
+- 📄 Know about my experiences - 📄 [Resume](https://drive.google.com/file/d/139Y-S1DZCRB56pI25xzvqWtlHr5wEHcj/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
